@@ -2,4 +2,4 @@
 
 🧑‍💻 Data Scientist & Explorer in AI & Employment Fields.
 
-✨ Building a platform to share the latest knowledge and insights from the perspective of a data scientist. >v<
+✨ Building a platform to share the latest knowledge and insights from the perspective of a data scientist. ٩(•̤̀ᵕ•̤́๑)ᵒᵏ
